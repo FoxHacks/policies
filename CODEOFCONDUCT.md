@@ -1,0 +1,1 @@
+Every ACM-W code jam participant will automatically adhere to the guidelines linked [here](https://docs.google.com/document/d/1Hi5ZcmiPWlOHmlU4PL8dw2ptkRCGDnMDkiTp01yxloU/edit?usp=sharing) by participating in any club-sponsored events.
